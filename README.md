@@ -1,5 +1,1 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=delusionofdawn&label=Profile%20views&color=0e75b6&style=flat" alt="delusionofdawn" /> </p>
-
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=delusionofdawn&label=Profile%20views&color=ff7721&style=flat" alt="delusionofdawn" /> </p>
