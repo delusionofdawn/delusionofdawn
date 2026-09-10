@@ -1,3 +1,2 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=delusionofdawn&label=◝(ᵔᗜᵔ)◜&color=FFFF0A&style=flat" alt="delusionofdawn" /> </p>
-<p align="center"> slow or no replies to whispers
-<p align="center"> sorry to anyone ghosted, its not on purpose (˃̣̣̥ᯅ˂̣̣̥) 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=delusionofdawn&label=◝(ᵔᗜᵔ)◜&color=E6E627&style=flat" alt="delusionofdawn" /> </p>
+<p align="center"> <img src="https://file.garden/aQFO_1ZIXFKYuf0Y/55E01EC5-0477-45AD-A551-D681FD860403.jpeg">
